@@ -15,3 +15,13 @@ Aeternus Is a watchdog service for websites/servers, protecting them 24/7!
 
 
 FOR INVESTORS!
+
+#### What are we producing?
+
+#### How will we do this?
+
+#### For whom are we producing?
+
+#### What resources will we need?
+
+#### Why might people want to buy your service?
