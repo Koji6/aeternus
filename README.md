@@ -36,3 +36,9 @@ Our tech support is very nice, we have 24/7 support, and our prices are lower.
 
 #### Conculsion
 You will want to invest in Aeternus because we are better than any of our competitors, have a profitable business plan, and can be sustained. We have been passionate about cyber security since we first learned about it.
+
+
+![logo](https://user-images.githubusercontent.com/97570469/164503582-882d48f6-0acc-4506-b84d-6c3dfed53b9f.png)
+
+
+
